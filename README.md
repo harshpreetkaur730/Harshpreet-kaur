@@ -63,7 +63,7 @@ All the students headed towards the workshop and from there all the students wer
  
  𝘿𝙖𝙮10 (13𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
-
- 𝘿𝙖𝙮11(14𝘼𝙪𝙜𝙪𝙨𝙩2025) 
+The day started with a lecture of the subject  Economics lecture by Jasmeen kaur Mam started at 9:30 sharp in the morning.The lecture start with some basic definitions of economics and introduction to some great people in economics. After a great lecture .It was the time of an Engineering drawing and computer graphics lecture by Sir Jagdeep Singh at 10:30 in the morning. It was my third lecture of engineering drawing and the first time using the equipment of engineering drawing. Firstly sir told us about the dimensions of writing the alphabets and the proper way of writing them. Then sir told us to note it down and after that we all started drawing it on the graph paper. At first it was getting very difficult but with the help of sir we did it. After that it was the time of lowercase letters of alphabets. After spending some time on the lowercase letters it was the time for numerical values. After this lecture it was the time of a physics lecture by Amarjot mam. First she took attendance of all students then she continued the topic which she left in half yesterday. Then she completed the theorem and all the student wrote it down. it was the time of an economics lecture by jasmeen kaur mam. mam started the lecture with some types and definition of economics. After a great lecture it was the time of an maths lecture by Sumanpreet kaur mam.Mam gave us some partial differential equations to solve and  After solving the problems. The day was over at the college and it was time to go Back home.
+                   𝘿𝙖𝙮11(14𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
  The weather is not good today and my health is not good either, So I'm on leave today. 
