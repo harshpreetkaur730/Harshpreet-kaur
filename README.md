@@ -42,6 +42,7 @@ Firstly all the students covered their heads and Harpreet mam chose a student to
 
 𝘿𝙖𝙮6 (7𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
+
 𝘿𝙖𝙮7 (8𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
 So today the first lecture was
@@ -61,6 +62,7 @@ All the students headed towards the workshop and from there all the students wer
  Later it was the time for going to the physics lab. Visiting the physics lab for the first time was very interesting. Sir told all the students to make a group of three to study a project and then all of us were given a manual from which we could know about the procedure and apparatus of the project. After that I and two more girls from my section were made into a group to perform a laser experiment and find out the ratio and write it . It was very interesting to work in the physics lab and it was something new to learn. And like this it was time to say goodbye to college for the day.
  
  𝘿𝙖𝙮10 (13𝘼𝙪𝙜𝙪𝙨𝙩2025) 
+
 
  𝘿𝙖𝙮11(14𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
