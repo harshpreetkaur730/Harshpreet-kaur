@@ -21,4 +21,8 @@ The day started with a lecture on the topic"Universal Human Values" by 𝙋𝙧�
 
 After that it was time for the maths proficiency test. It was a bit difficult as it contained some topics from 10th standard but I finally made the ends meet. After the maths test the day at the college was over and it was time to go back home.![1000003557](https://github.com/user-attachments/assets/01d84b37-6de7-47a3-bd34-8781a435e9ca)
 
+𝘿𝙖𝙮3(4𝘼𝙪𝙜𝙪𝙨𝙩2025) 
+Today I'm on leave. Do to health issues
+
+𝘿𝙖𝙮4(5𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
