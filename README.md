@@ -1,4 +1,5 @@
 𝙄𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙩𝙞𝙤𝙣 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙚 2025
+
 𝙉𝙖𝙢𝙚= Harshpreet kaur
 𝘽𝙧𝙖𝙘𝙝= Electrical engineering
 𝙥𝙝𝙤𝙣𝙚 𝙣𝙤= 7837426000
@@ -17,6 +18,7 @@ The formal ceremony was held in the auditorium where students from Mechanical, C
 * The Chief Guest, **S. Maheshinder Singh Grewal**, Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust, inspired students with his words on discipline, purpose, and the founding vision of the college.
 
 *After the formal welcome, students visited their respective departments for orientation, meeting faculty and exploring labs and facilities. A day full of inspiration, tradition, and new beginnings!![1000003555](https://github.com/user-attachments/assets/865d9fc4-b988-4be3-abd7-8b2ca2f431d0)
+it wastimee to go back home.
 
 𝘿𝙖𝙮2(1𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
@@ -39,8 +41,6 @@ First of all he wanted to know how many of the students previously knew about mo
 
 The day in the college started at 9.30 sharp in the auditorium when all the students gathered together there.
 Firstly all the students covered their heads and Harpreet mam chose a student to recite the mool mantra for others while the other students heard it and meditated their own energy in themselves. After that Dr Parminder Singh (Dean of the Student Welfare Club) held the stage and started his lecture. His tone of talking was gentle and soothing. His words were very inspiring and had great motivation in them. After that Mr Manpreet Singh came forward to deliver a lecture on the topic "Fitness for Engineers". He was looking very fit and it can be seen through his personality and his way of standing. Then he started talking about fitness and students took keen interest in his lecture by asking him questions in return.later sir wanted some volunteers on stage to help him and boys was going the stage in joining the activities. All boys are very excited this activity. some one boy come first to proformed push ups on the stage and sir asked those boys good position is this and bad position is this. All the boys in front the stage is very good this activity. After that Sir continued his topic and started talking about steroids as one student raised his query about that. His lecture was very inspirational and motivational and last he told all the students present in the auditorium to make a promise that all of us will stay fit and inspire others to be fit. Sir is literally a role model for many people. After that we went to our class to attend the physics lecture by Amarjot mam. It was our first lecture by Amarjot mam. First of all we all gave our introduction and after that mam started talking about the syllabus and the exams procedure and the other important things that we should know. After that she told us about the chapters that we will study later and gave us some topics to research like optical fibre and lasers. After that lecture the college was over and it was a great day in college
-
-𝘿𝙖𝙮6 (7𝘼𝙪𝙜𝙪𝙨𝙩2025) 
 
 
 𝘿𝙖𝙮7 (8𝘼𝙪𝙜𝙪𝙨𝙩2025) 
